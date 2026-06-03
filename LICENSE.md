@@ -1,4 +1,4 @@
-# 
+# Nouveau dex sniper bot scripts pour Mac OS | Top dex sniper bot scripts pour PC Windows. Avec pools de liquidité DEX et minage de liquidité — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
